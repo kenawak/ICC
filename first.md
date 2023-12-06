@@ -1,1 +1,0 @@
-# My first ICC coding session
